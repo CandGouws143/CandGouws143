@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CandGouws143
-- 👀 I’m interested in ...tech, latest trends and connecting with likeminded people
+- 👀 I’m interested in ...tech, latest trends and connecting with like-minded people
 - 🌱 I’m currently learning ...Interested in new tech
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...candice.gouws@entelect.co.za and 0785576794
